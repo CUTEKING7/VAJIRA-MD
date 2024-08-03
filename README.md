@@ -1,6 +1,6 @@
 <div align="center">
      
- [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F01&lines=ＶＡＪＩＲＡ+ＭＤ+ＷＨＡＴＳＡＰＰ+ＢＯＴ)](https://git.io/typing-svg)
+ [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F01&lines=RizwaN 106+ＭＤ+ＷＨＡＴＳＡＰＰ+ＢＯＴ)](https://git.io/typing-svg)
 
 ## FIXING  ALL ERRORS IN NEXT UPDATE WAIT..... 
 
@@ -13,8 +13,8 @@
 <hr>
 
 <p align="center">
-<a href="https://github.com/VajiraTech">
-    <img src="https://telegra.ph/file/235d945df230d71f246b6.jpg"  width="700px">
+<a href="https://github.com/CUTEKING7">
+    <img src="https://telegra.ph/file/caabde950492f8b848651.jpg"  width="700px">
 </a>
 <hr>
 
@@ -23,7 +23,7 @@
 
 ## JOIN MY WHATSAPP CHANNEL
 
-[![vajira](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://whatsapp.com/channel/0029VahMZasD8SE5GRwzqn3Z)
+[![vajira](https://telegra.ph/file/caabde950492f8b848651.jpg)](https://whatsapp.com/channel/0029VagBvGX1dAvzWwMPm50H)
 
 
 
@@ -31,15 +31,15 @@
 
 ## CONTACT OWNER
 
-[![vajira](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://wa.me/94719199757)
+[![vajira](https://telegra.ph/file/caabde950492f8b848651.jpg)](https://wa.me/923180327106)
 
 ## JOIN SUPPORT GROUP
 
-[![vajira](https://telegra.ph/file/99460844d012cad1b7ee4.jpg)](https://chat.whatsapp.com/D6w6Qy5yrhp7MmfNcprbO3)
+[![vajira](https://telegra.ph/file/caabde950492f8b848651.jpg)](https://whatsapp.com/channel/0029VagBvGX1dAvzWwMPm50H)
 
 ## MY YT CHANNEL
 
-[![Youtube](https://telegra.ph/file/eebe86c26e98ffeae39ea.jpg)](https://youtube.com/@gamingewingyt6216) 
+[![Youtube](https://telegra.ph/file/caabde950492f8b848651.jpg)](https://youtube.com/@rizwantechinfo106) 
 
 </details>
 
@@ -77,13 +77,14 @@
 </div>
 
 
-## HOW TO DEPLOY 🧚 VAJIRA - ＭＤ 🧚
+## HOW TO DEPLOY 🧚 RizwaN 106- ＭＤ 🧚
 
 1) 𝙵𝙸𝚁𝚂𝚃 𝙵𝙾𝚁𝙺 𝚃𝙷𝙴 𝚁𝙴𝙿𝙾.
 2) 𝚂𝙲𝙰𝙽 𝚃𝙷𝙴 𝚀𝚁 𝚃𝙷𝙴𝙽 𝚆𝙸𝙻𝙻 𝙲𝙾𝙼𝙴 𝚂𝙴𝚂𝚂𝙸𝙾𝙽 𝙸𝙳.
 4) 𝙰𝙽𝙳 𝚂𝙴𝙻𝙴𝙲𝚃 𝙵𝙾𝚁𝙺 𝚁𝙴𝙿𝚘 𝙰𝙽𝙳 𝙳𝙴𝙿𝙻𝙾𝚈 𝚃𝙷𝙴 𝙱𝙾𝚃.
 5) 𝙿𝚄𝚃 𝙳𝚈𝙽𝙾 𝚃𝙾 𝙿𝚁𝙾𝙵𝙴𝚂𝚂𝙸𝙾𝙽𝙰𝙻 𝙰𝙽𝙳 𝙿𝚄𝚃 𝙸𝚃 2𝚡.
 6) 𝙽𝙾𝚆 𝙴𝙽𝙹𝙾𝚈 𝚃𝙷𝙴 𝚅𝙰𝙹𝙸𝚁𝙰 𝙼𝙳 𝙱𝙾𝚃.
+7) RizwaN Lenged XD Bot Support 
 
 
 ## THANKS TO 👨‍💻
